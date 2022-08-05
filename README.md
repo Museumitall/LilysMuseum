@@ -1,2 +1,4 @@
 # LilysMuseum
-Lily's Museum of Arts
+<strong>Lily's Museum of Arts</strong>
+
+
