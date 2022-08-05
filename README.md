@@ -7,3 +7,4 @@ Step 3.  <strong>Clean up if it's messy( very important!)</strong>
 Step 4. Decorate the area! Make it look ike an art gallery, a palace inside, anywhere you want your gallery to be!
 Last step. Invite your friends! Or it won't be a gallery anymore!
 <strong>            Also selling artwork online! Don't miss the latest updates!</strong>
+Oh, and label the sections you have of art like, Living Things and give it examples like People, Animals, etc. 
