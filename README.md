@@ -1,10 +1,10 @@
 # MuseumofallArts
 <strong>Lily's Museum of Arts</strong>
-Do you want to add more color to your life in your house?! Follow my step-by-step directions to create your own gallery!
-1.  Create a lot of art.<br>
-2.Find somewhere with space( as much as you need to put all your art inside and have room for your tourists, artists, students, etc. to walk around).
-3. <strong>Clean up if it's messy( very important!)</strong>
-4. Decorate the area! Make it look ike an art gallery, a palace inside, anywhere you want your gallery to be!
+1. Do you want to add more color to your life in your house?! Follow my step-by-step directions to create your own gallery!
+2.  Create a lot of art.<br>
+3. Find somewhere with space( as much as you need to put all your art inside and have room for your tourists, artists, students, etc. to walk around).
+4. <strong>Clean up if it's messy( very important!)</strong>
+5. Decorate the area! Make it look ike an art gallery, a palace inside, anywhere you want your gallery to be!
 Last step. Invite your friends! Or it won't be a gallery anymore!
 <strong>            Also selling artwork online! Don't miss the latest updates!</strong>
 Oh, and label the sections you have of art like, Living Things and give it examples like People, Animals, etc. 
