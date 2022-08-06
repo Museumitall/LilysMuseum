@@ -9,4 +9,4 @@ Last step. Invite your friends! Or it won't be a gallery anymore!
 <strong>            Also selling artwork online! Don't miss the latest updates!</strong>
 Oh, and label the sections you have of art like, Living Things and give it examples like People, Animals, etc. 
 [ADC2D550-2646-4F94-9794-ED53C8F6B073](https://user-images.githubusercontent.com/110696638/183265508-707d4e61-e4ef-46b2-b9b9-81c1fa9f02f0.jpeg)
-This is what your beginning gallery should look like. (steps 1-4)
+This is what your beginning gallery should look like.(Click on the link)
