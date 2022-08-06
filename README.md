@@ -1,4 +1,4 @@
-# LilysMuseum
+# MuseumofallArts
 <strong>Lily's Museum of Arts</strong>
 Do you want to add more color to your life in your house?! Follow my step-by-step directions to create your own gallery!
 1.  Create a lot of art.<br>
